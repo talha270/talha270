@@ -28,4 +28,4 @@
 
 
 <br>
-⭐️ From [axiftaj](https://github.com/axiftaj)
+⭐️ From [Muhammad Talha](https://github.com/talha270)
